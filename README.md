@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anastazry
 - 👀 I’m interested in coding!...
-- 🌱 I’m love tauhu begedil
+- 🌱 I’m in love with tauhu begedil
 
 
 <!---
